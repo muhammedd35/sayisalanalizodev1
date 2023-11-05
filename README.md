@@ -1,2 +1,0 @@
-# sayisalanalizodev1
-sayisalanalizodev1
